@@ -1,4 +1,4 @@
-I am Zunaira, a final year BSCS student at COMSATS University Islamabad
+I am Zunaira Ashraf, a final year BSCS student at COMSATS University Islamabad
 I am interested in Designing mockups, user interfaces, designing mobile screens and moch more
 I am currently learning UI/UX Design Course on Coursera
 I am looking to collaborate on Designing principles
